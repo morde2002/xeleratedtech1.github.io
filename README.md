@@ -1,2 +1,0 @@
-# xeleratedtechinc
-My Website
